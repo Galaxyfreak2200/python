@@ -1,1 +1,1 @@
-download song before playiing and after downloaded your all set!
+download song before playing and after downloaded your all set!
